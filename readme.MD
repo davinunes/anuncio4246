@@ -22,9 +22,11 @@ Características:
 ## Valores
 
 > **Ágio**: R$ 60.000,00
-
-> Saldo devedor em junho de 2023: R$ 35.000,00
-
+```
+Faltam 159 prestações de 300 
+Valor da prestação: R$ 380,00
+Saldo devedor em junho de 2023: R$ 35.000,00
+```
 › Imóvel financiável, com habite-se e regulamentado pela caixa econômica.
 
 > Valor quitado: R$ 95.000,00.
