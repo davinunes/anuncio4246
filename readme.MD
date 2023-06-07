@@ -2,7 +2,7 @@
 
 [Link OLX](https://df.olx.com.br/distrito-federal-e-regiao/imoveis/casa-no-residencial-ouro-verde-com-2-quartos-garagem-coberta-1195182449?)
 
-Contato: wa.me/5561996757676
+Contato: https://wa.me/5561996757676
 
 Excelente casa no Residencial Ouro Verde/GO
 Próximo a Brazlândia/DF
