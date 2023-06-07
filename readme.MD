@@ -16,6 +16,8 @@ Características:
 - área de serviço
 - área de garagem coberta com capacidade para até 4 veículos
 
+Área interna construída: 69,5m²
+
 > ![Alt text](Fotos/Planta.png)
 
 > Próximo a parada de ônibus
