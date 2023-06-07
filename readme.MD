@@ -2,6 +2,8 @@
 
 [Link OLX](https://df.olx.com.br/distrito-federal-e-regiao/imoveis/casa-no-residencial-ouro-verde-com-2-quartos-garagem-coberta-1195182449?)
 
+[Link WIMOVEIS](https://www.wimoveis.com.br/propriedades/casa-com-2-quartos-e-areas-cobertas-com-grade-2981176014.html)
+
 Contato: https://wa.me/5561996757676
 
 Excelente casa no Residencial Ouro Verde/GO
